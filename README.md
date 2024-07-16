@@ -33,3 +33,4 @@ By focusing on these objectives and key activities, an e-commerce website can ef
 
 
 
+![task](https://github.com/user-attachments/assets/0888eae7-e285-496c-8234-c3d337b2b8ad)
